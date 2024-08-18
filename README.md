@@ -88,4 +88,4 @@ Langues Étrangères :
 Me Contacter
 - Email : mdoumbiapromail@gmail.com 
 - LinkedIn : https://www.linkedin.com/in/mamby-doumbia-46561563/
-- Twitter :
+- Twitter :https://x.com/doumanett?t=eNlMRVw0ONiA4jmYT1WrSw&s=09
